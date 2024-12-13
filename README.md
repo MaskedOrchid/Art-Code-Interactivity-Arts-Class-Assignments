@@ -1,1 +1,1 @@
-Assignments from Art Code Interactivity Arts class took in College.
+Assignments from Art and Code and Interactivity Arts class took in College.
